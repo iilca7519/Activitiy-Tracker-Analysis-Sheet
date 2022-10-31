@@ -20,6 +20,7 @@ What other activities work well in conjunction with this sheet?
 
 
 Link to the Google Doc: https://docs.google.com/spreadsheets/d/1I-g8T3I1o6cpzuM1n4b-b4GjgpGnc-vUOljfWimQ318/edit?usp=sharing
+
 Link to Reddit thread: https://www.reddit.com/r/Entrepreneur/comments/xq7mkg/comment/iq8mo3n/?utm_medium=android_app&utm_source=share&context=3
 
 
