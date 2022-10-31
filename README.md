@@ -1,4 +1,4 @@
-# Activitiy-Tracker-Analysis-Sheet
+# Activity-Tracker-Analysis-Sheet
 To bring more awareness to how you spend time. Feel free to view the document and copy it to make changes. 
 
 
